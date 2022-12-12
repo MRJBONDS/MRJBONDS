@@ -1,0 +1,3 @@
+- 👋 Hi, I’m MR.J
+- 👀 I’m interested in Coding I need all the help I can get 
+- 📫 How to reach me Mr.j.bonds@proton.me
